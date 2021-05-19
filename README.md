@@ -1,1 +1,1 @@
-Im antifloat or the CEO of quarterbyte. I think that github is a great place!
+Hello I am antifloat. I am the creator of quarterbit(was quarterbyte until it was taken) I am glad to be on GitHub!
